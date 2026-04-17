@@ -1,5 +1,3 @@
-M1T L1c3ns3
-
 C0pyr1ght (c) 2026 M0d3Cry
 
 P3rm1ss10n 1s h3r3by gr4nt3d, fr33 0f ch4rg3, t0 4ny p3rs0n 0bt41n1ng 4 c0py
